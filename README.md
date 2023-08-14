@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Data Analytics Projects <br>I'm looking to collaborate on building the most effective dashboards for solving business related problems.<br>I'm looking for help with developing the best data analytics portfolio.<br>Ask me about Data.<br>Fun - Fact: I'm lazy but smart
+I'm currently working on Data Analytics Projects <br>I'm looking to collaborate on building the most effective dashboards for solving business related problems.<br>I'm looking for help with developing the best data analytics portfolio.<br>Ask me about Data.<br>Lessss goooo!
 
 
 ## 🌐 Socials:
